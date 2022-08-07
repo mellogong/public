@@ -2,3 +2,4 @@
 
 
 ![image](https://user-images.githubusercontent.com/59381027/183285778-8b3d7638-38f7-43e4-a68d-18340c91638f.png)
+<img width="950" alt="about" src="https://user-images.githubusercontent.com/59381027/183285800-4fa931d2-cb0a-480c-a379-5d2b5c543ea1.png">
