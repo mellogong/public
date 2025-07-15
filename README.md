@@ -4,5 +4,5 @@
 如有问题可以通过以下方式联系我们：
 E-mail：3146693677@qq.com
 QQ：3146693677
-微信：yuyingupiao
-抖音：yuyingupiao
+微信：tingpanla
+抖音：tingpanla
